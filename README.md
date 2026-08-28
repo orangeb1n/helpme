@@ -115,7 +115,7 @@ Meaning there's roughly these options for the definitive answer:
    - **De-assimilation doesn't mean C -> A and B, but rather that C stays C and doesn't change after deassimilation** much (meaning that fusion *is* permanent), the tombsona just goes on to change someone else, for example Rust's armor just falls off, which doesn't fix The Problem by itself, but **it does *objectify Rust***, implying that
     
    - Rust, and maybe the other tombsonas as well (because If tombsonas don't even possess free will until they have a host, **what exactly is their consciousness like before assimilation?**), isn't a conscious being.<br>
-At least not in the traditional sense. Because remember what makes Rust special? They're the only tombsona tied to a physical object. ***Physical objects* don't really have a consciousness**.<br>
+At least not in the traditional sense. Because remember what makes Rust special? They're the only tombsona tied to a physical object. ***Physical objects* don't really have a consciousness**. Maybe without a host, Rust is simply the data without a stream of consciousness.<br>
 It *is* a lazy answer, but if you're not pleased with it, you can try to take a look at the other ones! :D That's why they're here. And you don't have to agree with these answers at all! I'd love to hear your opinion.
     
 2. Rust doesn't assimilate like the other tombsonas, but rather **uses the concept of communism to connect with the host's brain**.
