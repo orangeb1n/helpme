@@ -1,4 +1,4 @@
-What if continuity didn't have to belong to only one predecessor?
+# What if continuity didn't have to belong to only one predecessor?
 
 Beware that most of this are personal opinions, there are probably a few jokes and most of the tombsonas' descriptions are just copied from the TLT fandom wiki. There are also inconsistencies in things like letter capitalization as different parts of this were written at different points in time.
 
