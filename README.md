@@ -6,7 +6,8 @@ I also sent this document to people who are not into the TLT lore, so at some po
 
 ---
 
-The fusion/assimilation is two beings becoming one, right? (Rhetorical question)
+I thought of a way to view the assimilation not entirely as a horror and keep thinking about it.<br>
+Because the fusion/assimilation is two beings becoming one, right? (Rhetorical question)
 How for example red and blue mix to create purple. You **can see red** in there, you **can see blue** in there, but you **wouldn’t say it’s either of those**. It’s **purple**, that’s what it is now. More than either of the two could ever be alone. Simple.
 
 The chaos begins when it’s not just colors anymore, **but two conscious beings merging into one**, because intuitively when (many) people try to imagine it, the **thought that one has to be oppressed** in some way appears. Doesn't matter whether it's that "one controls the body of the other", or something else, because that doesn't happen here. This is
